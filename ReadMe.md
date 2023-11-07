@@ -16,5 +16,5 @@ I am a level Designer environment artist and a IT student
 ---
 [![](https://visitcount.itsvg.in/api?id=korybagel&icon=1&color=10)](https://visitcount.itsvg.in)
 
-  ## 💰 You can help me by Donating
+  ## bathtub stream dono
   [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/KoryBagelBusiness) 
